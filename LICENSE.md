@@ -1,4 +1,4 @@
-# 
+# حصرية Revo Uninstaller قوالب لـ Mac OS | آلي Revo Uninstaller قوالب لـ PC Windows. مع تدقيق الأمن و نظام الإشعارات — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
